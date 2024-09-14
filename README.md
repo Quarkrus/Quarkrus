@@ -10,5 +10,5 @@
 
 <br />
 
-Aemulus aeternus. Sine fine duellum. Infinitum certamen. Perfectum finem sine causa belli...
+Aemulus aeternus. Sine fine duellum. Infinitum certamen. Perfectum finem sine causa belli...<br />
 Quod est acceptatio, compromissum et SUI TE IPSUM ET HOSTUM PLENARIO DELENDAM...
